@@ -1,1 +1,1 @@
-idk if this works
+press < > code and download op red deck.zip or op red deck.zip.zip they are the same thing, install balatro mod manager, lovely, and steammodded (both balatro mod managers) and unzip the file in the Mods folder in balatro! (create one if you dont have one) and if you have balatro mod manager it should show up!
